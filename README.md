@@ -1,2 +1,2 @@
 # Tadogen
-Electronics and Innovation company.
+Helping to build tommorrow's society.
